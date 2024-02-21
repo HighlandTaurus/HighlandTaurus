@@ -2,7 +2,7 @@
 - 👀 I’m interested in 3D character art
 - 🌱 I’m currently learning Blender
 - 💞️ I’m looking to collaborate on GameJams
-- 📫 How to reach me https://highlandtaurus.carrd.co/
+- 📫 How to reach me [https://highlandtaurus.carrd.co/](https://taurus3d.carrd.co/)
 - 😄 Pronouns: She / Her
 - ⚡ Fun fact: I love cats
 
